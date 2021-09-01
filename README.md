@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Hahulogy
+- 👀 I’m interested in reading peoples mind, pc
+- 🌱 I’m currently student
+- 💞️ I’m looking to collaborate on programmers
+- 📫 How to reach me nebiyuelyas3@gmail.com
